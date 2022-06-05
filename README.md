@@ -1,1 +1,0 @@
-# kyustorm7.github.io
